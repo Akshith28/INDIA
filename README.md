@@ -1,1 +1,1 @@
-# INDIA
+# explore-india-app
